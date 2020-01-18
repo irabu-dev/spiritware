@@ -1,0 +1,2 @@
+# spiritware
+irabu AI Division initiated by our current CEO & Chief in Command Raymond Nyiti, supported and seconded by the Company Secreteary & Operation Lead Mr Emmanuel Evance also famously known by the alias mtuchi (@mtuchidev on social connection).
